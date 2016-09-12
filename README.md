@@ -1,2 +1,2 @@
 # maskedpleasures
-Pleasures From All Anles
+Pleasures From All Angles
